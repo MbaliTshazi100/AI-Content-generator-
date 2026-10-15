@@ -1,1 +1,1 @@
-https://personal-portfolio-w-xira.bolt.host
+https://balanceher-wellness-yp9s.bolt.host
